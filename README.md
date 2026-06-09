@@ -1,0 +1,1 @@
+# generalisasi-garis-pantai
